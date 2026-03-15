@@ -48,4 +48,4 @@ We may update these Terms of Use from time to time. Continued use of the App aft
 
 If you have questions regarding these Terms, please contact:
 
-Email: your-email@example.com
+Email: rathoddixit@gmail.com
